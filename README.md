@@ -1,4 +1,3 @@
-#Hi!
 - 👋 Hi, I’m @Pesto746atschool
 - 👀 I’m interested in nothing
 - 🌱 I’m currently learning nothing
