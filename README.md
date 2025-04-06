@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Pesto746atschool
+- 👋 Hi, I’m @Pesto746 but at school
 - 👀 I’m interested in nothing
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing
